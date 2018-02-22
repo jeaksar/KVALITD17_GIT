@@ -1,0 +1,1 @@
+# KVALITD17_GIT
